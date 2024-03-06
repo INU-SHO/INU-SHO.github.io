@@ -1,1 +1,1 @@
-# INU-SHO.github.io
+# Webページ開設しました！
